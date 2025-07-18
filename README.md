@@ -1,7 +1,7 @@
 # 💫 About Me:
 👩🏻‍💻📓Student of Engineering of IT Systems at the University of Warmia and Mazury (UWM)✍🏻💡<br>
 
-# **[budziun.pl](https://budziun.pl)**
+# **[My website](https://budziun.pl)**
 
 
 ## 🌐 Socials:
